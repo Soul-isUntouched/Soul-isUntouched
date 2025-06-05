@@ -1,4 +1,4 @@
-![2iltee](https://github.com/user-attachments/assets/b2a064c2-15c8-4332-96c4-a689a36bdda4)
+
 # hi! heres somthings maybe youed like to know about me :3
 
 ### Fandoms I'm In!!
